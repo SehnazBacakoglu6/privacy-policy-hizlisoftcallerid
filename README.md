@@ -1,1 +1,1 @@
-# privacy-policy-hizlisoftcallerid
+# HızlıSoft Caller ID Uygulaması Gizlilik Politikası
